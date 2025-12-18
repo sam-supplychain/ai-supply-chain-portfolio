@@ -22,4 +22,4 @@ Supply Chain professional with a Master's in Supply Chain Management and 3+ year
 ## Goal
 To demonstrate structured thinking, business decision-making, and AI-enabled supply chain transformation capabilities.
 
-## Goal2
+
